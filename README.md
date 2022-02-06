@@ -1,1 +1,1 @@
-CHEAT
+Life is good.
